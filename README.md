@@ -1,2 +1,6 @@
-# Dever10088
-Dever1008
+Questão 1
+A- A dura vida dos escravos.
+
+
+Questão 2
+A- O trabalho Escravo.
